@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @nazia-1089
+- 👀 I’m interested in forging a career in the world of tech! I've always been the kind of person who is fascinated by why things work and how things work. I enjoy solving problems and am interested in being an important part of digital transformation.
+- 🌱 I’m currently learning how to code with School of Code. I have also started the 100 days of code challenge. Excited to learn all things code! Watch this space :)
+- 💞️ I’m looking to collaborate on projects with my fellow bootcampers! 
+- 🤔 I’m looking for help with all things coding and github related 👀
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I am Marie Kondo in the making. I love tidying and organising...pure bliss!
+- 📫 How to reach me- linkedin.com/in/nazia-rahman-581925227
